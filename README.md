@@ -8,4 +8,4 @@ Your torch light will slowly fade out, but you can collect sticks to increase is
 
 
 Yeah its too big for github, prob did something wrong idk. Sorry for the inconvenience.
-Link to download- https://drive.google.com/drive/folders/1AVS4bS_1t32DNFgh03PlHS1YYMJsEcix?usp=sharing
+Link to download- https://drive.google.com/file/d/1Op1iM6WcEp6_7Nfm3-aL6SfV_9X64v9x/view?usp=sharing
